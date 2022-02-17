@@ -105,7 +105,7 @@ HAVE A FUN!
 </div>
 
 
-## ⎝🛡️ THARU 🛡️⎠ Team Offcial
+## ⎝🛡️ MENUU 🛡️⎠ Team Offcial
 
 <table>
 										<tbody>
